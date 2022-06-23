@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @killsystem10
+- 👋 Hi, I’m killsystem10
 - 👀 I’m interested in tech.
 - 🌱 I’m currently student.
 - 📫 How to reach me killsystem10@outlook.com / +821073684251
